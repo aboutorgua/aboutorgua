@@ -8,9 +8,9 @@
 
 Добавьте информацию о своем бизнесе в каталог и вы получите бизнес-страницу в виде мультиссылки с описанием бизнеса и ссылками на ваши страницы в соцсетях и мессенджерах, а также рекламу в соцсетях.
 
-Реклама бизнес-страницы в соцсетях на наших ресурсах совершенно бесплатная.
+Реклама онлайн-визитки на бизнес-страницах проекта в социальных сетях совершенно бесплатная.
 
-Подробные условия опубликуем - будут сюрпризы! ;)
+Дополнительно реклама в группе "Объявления и реклама" в Facebook [https://www.facebook.com/groups/reklama.group.ua](https://www.facebook.com/groups/reklama.group.ua) и Telegram [https://t.me/reklamagroupua](https://t.me/reklamagroupua)
 
 <!--
 **aboutorgua/aboutorgua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
